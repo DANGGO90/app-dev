@@ -19,5 +19,19 @@ my first repository
 
 *she dragged merida into the room, the argument gets heated to the point merida tore off the seam picture. angering elinor and snatching the bow from merida which her father have gifted to her. thrown into a fire place. Merida run out, and elinor soon regret her choice and tried to grabbed the bow out of the fireplace* 
 
-> The rest of story, is beautiful. cause merida and elinor soon patched their relationship as mother and daughter and elinor learn to let merida have her own decision and freedom to choice. 
+*Meanwhile Merida run through the forest. there he meet a willow wisp that leads her towards the witch, Merida asked for something that might make her mother understand her better. when the witch give her a bread treats, little did she know that it can turned anyone who take a bite into a bear.* 
+
+*when she returned home, elinor is worried for her and checked for any injury seeing none she was relived and felt guilty for her actions. Merida then coax her into eating the treat.* 
+
+*making her suddenly dizzy. Merida escorted her back to the room, there where she slowly transformed into a bear and the journey of merida finding a way for her to turned her mother back into normal* 
+
+### ANYLSIS
+
+> This story Explored two character, Elinor and Merida. mother and daughter, They both may have familial bound with each other but merida felt like her owned life was always being controlled by her mother to be more of princesses then to be who she really is. as merida is someone who is free spirited, curious, adventures. She treasure having to feel freedom  
+
+> but elinor is a woman who is a queen and as a queen. She is responsible handling all the affair of the kingdom alongside with her husband, she have reputation she need to hold towards her people. but with that much responsible she had made sure that merida would follow her footsteps as being a lady, be proper and hold that same responsibility as she holds. 
+
+> Two character crashed into other personality creating the tensed conflict of one wanting freedom and the other wanted the one to be more responsible as having title of princesses. 
+
+> but in the end merida and elinor soon patched their relationship as mother and daughter, elinor learn to let merida have her own decision and freedom to choice and merida decided to embrace the responsibility of being a princesses without feeling like her freedom is being taken away. both came into conclusion to cherish one other.
 
